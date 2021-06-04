@@ -1,2 +1,2 @@
 telegram: @karakhanov
-instagram: karakhanov.24
+mail: islommamatov2@gmail.com
